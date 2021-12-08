@@ -1,1 +1,1 @@
-# SPK---Peemilihan-Beasiswa-Berprestasi
+# SPK---Pemilihan-Beasiswa-Berprestasi
